@@ -1,4 +1,4 @@
-I understand that this is not as a valid reason/excuse, but I would like to at least try to explain my situation, even if the chances of this submission disregarded  high.
+I understand that this is not as a valid reason/excuse, but I would like to at least try to explain my situation, even if the chances of this submission not being graded.
 
 I completely understand if points are deducted from my activity due to it not being edited or if this activity isnt graded. If the decision results in an immediate score of zero, I will respect that outcome without any objections. My intention is not to make excuses but to explain the circumstances that led to this situation.
 
